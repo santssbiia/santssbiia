@@ -1,4 +1,4 @@
 Olá, sou a Bianca estudante da escola José Ephim Mindlin, estou na 1º ano do ensino médio e tenho 15 anos.
 Estou criando este perfil para criar meus projetos para as aulas de tecnologia e robótica.
 
-![](https://media.tenor.com/z9M1ypkID6oAAAAM/mc-ig-parado.gif)
+![](https://media1.tenor.com/m/_1C2S5ouA9UAAAAd/favela-noias.gif)
